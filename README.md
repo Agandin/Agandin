@@ -1,4 +1,4 @@
-### ✨ hello caps ✨
+### ✨ hello ✨
 
 Meu nome é Ana Laura
 
